@@ -1,1 +1,1 @@
-# 202002469 Minsung Kim
+# Minsung Kim
